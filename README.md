@@ -1,1 +1,1 @@
-Deepanshu Sood  <br> OPS445 LEC NDD
+Deepanshu Sood  <br> OPS445 NDD
